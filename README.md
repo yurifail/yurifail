@@ -20,6 +20,6 @@
  art by my [wife](https://github.com/fuburyo) 
 <p align="center"
  
- ![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=bafffc&label=bunnies)
+ ![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=yurifail&color=bafffc&label=bunnies)
 
 
