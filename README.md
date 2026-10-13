@@ -13,7 +13,7 @@
  
 <p align="center">
  
-<img src="https://miumimiumyo.carrd.co/assets/images/image04.png?v=093dad08" width="750">
+<img src="https://i.imgur.com/EYqYa6G.png" width="750">
 
  <p align="center"
 
