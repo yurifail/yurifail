@@ -20,6 +20,6 @@
 
 <p align="center"
   
- ![‎ʚֺྀི𑁦𐑳ׅ𑁦ੰׅॽ  ](https://komarev.com/ghpvc/?username=femakechi&color=bafffc&label=bunnies)
+ ![‎](https://komarev.com/ghpvc/?username=femakechi&color=c4b8a5&label=HI)
 
 
