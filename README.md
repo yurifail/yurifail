@@ -1,7 +1,11 @@
 
 
 <p align="center">
-<img src="https://yokai.crd.co/assets/images/gallery03/4246c620.gif?v=b4df531c"> c + h ok ` read my strawpage <img src="https://yokai.crd.co/assets/images/gallery03/58ed5769.gif?v=b4df531c">
+  eng/spa
+
+  
+  <p align="center">
+<img src="https://yokai.crd.co/assets/images/gallery03/4246c620.gif?v=b4df531c"> c + h ok | read my strawpage <img src="https://yokai.crd.co/assets/images/gallery03/58ed5769.gif?v=b4df531c">
 
 <p align="center"
 
