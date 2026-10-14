@@ -25,7 +25,7 @@
 <p align="center"
 
   
- ![‎](https://komarev.com/ghpvc/?username=yurifail&base=5500color=edebdf)
+ ![‎](https://komarev.com/ghpvc/?username=yurifail&base=5500&color=edebdf)
 
 
 <p align="center"
